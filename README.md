@@ -1,1 +1,1 @@
-![yotsuba](https://user-images.githubusercontent.com/110909033/183645053-377fee4d-611e-42df-a4eb-df9b7e5d0d39.png)
+https://user-images.githubusercontent.com/110909033/210555785-34f78bd5-d452-4cb7-82eb-c5bb0808d127.png
